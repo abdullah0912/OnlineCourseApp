@@ -8,8 +8,7 @@
 
 #### Thanks for reading this repo and you can support me as:
 
-- 👻 Following me on Twitter 👉 [Link](https://twitter.com/AbdullahKasgar)
-- 🤖 Following me on Instagram 👉 [Link](https://www.instagram.com/jay_official_24_/)
+- 👻 Following me on Linkedin 👉 [Link](https://www.linkedin.com/in/abdullah-ka%C5%9Fgar-6220a3329)
 - 👽 Following me on Github 👉 [Link](https://github.com/abdullah0912/)
 - 💻 You can connect with me from email on 👉 [abdullahkasgar2494@gmail.com](abdullahkasgar2494@gmail.com)
 
